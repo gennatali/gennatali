@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Nata. 
+- 👀 I’m Talent Acquisition Specialist (or simply recruiter) at MacPaw. 
+- 📫 I'll be glay to stay in touch - https://www.linkedin.com/in/nataliia-gen/
+- 🇺🇦 Слава Україні! 
